@@ -2,7 +2,7 @@
 - 👀 I’m interested in cats and conspiracy theories
 - 🌱 I’m currently learning IT things
 - 💞️ I’m looking to collaborate on projects!
-- 📫 How to reach me my blog@ https://sites.google.com/view/marks-conspiracy-site/home
+- 📫 How to reach me my blog@ 
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I love cats
 
